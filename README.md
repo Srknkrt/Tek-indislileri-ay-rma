@@ -1,0 +1,1 @@
+# Tek-indislileri-ay-rma
